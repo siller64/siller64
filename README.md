@@ -1,4 +1,6 @@
-## Hi there 👋
+hiiiiiiiiiiiii hiiiiiiiiiiii!!! 
+im 13 so please dont be freaky unless ur joking or my friend. thanks. also do not copy my pt skins i will be very angry!! grr!!! /srs
+i likr fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, wc, wof, ava, roblox myths and military
 
 <!--
 **siller64/siller64** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
