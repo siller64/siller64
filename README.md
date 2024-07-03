@@ -8,7 +8,10 @@ i likr fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, 
 
 
 ![image](https://github.com/siller64/siller64/assets/174038930/78012df6-f30c-458a-bcfe-9f0a099545e1)
-
+<TABLE BORDER=0><TR><TD>
+<A HREF="http://quiz.ravenblack.net/flavour.pl"><IMG BORDER=0 ALIGN="LEFT" WIDTH=100 HEIGHT=100 SRC="http://quiz.ravenblack.net/flavour/3.png" ALT="What Flavour Are You? I taste like Nuclear Waste. Delicious." /></A>I taste like <B>Nuclear Waste</B>. Delicious.<BR /><BR />
+Tasting like nuclear waste is a good thing - nothing bites me, nothing eats me, few things even touch me. I appreciate the solitude my harsh exterior brings. <A HREF="http://quiz.ravenblack.net/flavour.pl">What Flavour Are You?</A>
+</TD></TR></TABLE>
 
 
 <!--
