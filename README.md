@@ -3,6 +3,7 @@ hiiiiiiiiiiiii hiiiiiiiiiiii!!!
 im 13 so please dont be freaky unless ur joking or my friend. thanks. also do not copy my pt skins i will be very angry!! grr!!! /srs
 
 i likr fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, wc, wof, ava, roblox myths and military and cults (rthe band)
+<a href="https://f2.toyhou.se/file/f2-toyhou-se/images/85344596_1kA96xykWgqtWI7.jpg">so buck is my sona 👊👊👊👊</a>
 
 ![image](https://github.com/siller64/siller64/assets/174038930/e6748324-6a77-4676-9f0f-80102ca5284d) yhis is me irl btw ![image](https://github.com/siller64/siller64/assets/174038930/fa27f6ef-fe45-48d6-af97-5a97abaeac9e)and this. so cool.
 
