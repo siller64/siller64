@@ -2,7 +2,7 @@ hiiiiiiiiiiiii hiiiiiiiiiiii!!!
 
 im 13 so please dont be freaky unless ur joking or my friend. thanks. also do not copy my pt skins i will be very angry!! grr!!! /srs
 
-i likr fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, wc, wof, ava, roblox myths and military and cults (rthe band)
+i like fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, wc, wof, ava, roblox myths, hfjone and military and cults (rthe band)
 
 
 <a href="https://f2.toyhou.se/file/f2-toyhou-se/images/85344596_1kA96xykWgqtWI7.jpg?1721166377">alsso buck is my sona 👊👊👊👊</a> (old, i need to redraw
