@@ -2,7 +2,7 @@ hiiiiiiiiiiiii hiiiiiiiiiiii!!!
 
 im 13 so please dont be freaky unless ur joking or my friend. thanks. also do not copy my pt skins i will be very angry!! grr!!! /srs
 
-i like fighter jets, homestuck, phighting, regretevator,  drawing, fishkeeping, wc, wof, ava, roblox myths, hfjone and military and cults (the band)
+i like jade harley, phighting, regretevator,  drawing, wc, wof, ava, roblox myths, hfjone and cults (the band)
 
 buck is my sona
 
