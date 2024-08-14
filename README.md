@@ -4,7 +4,7 @@ im 13 so please dont be freaky unless ur joking or my friend. thanks. also do no
 
 i like jade harley, phighting, regretevator,  drawing, wc, wof, ava, roblox myths, hfjone and cults (the band)
 
-buck is my sona, also occasional trying quirk
+buck is my sona, also occasional typing quirk
 
 ![image](https://github.com/siller64/siller64/assets/174038930/e6748324-6a77-4676-9f0f-80102ca5284d) yhis is me irl btw ![image](https://github.com/siller64/siller64/assets/174038930/fa27f6ef-fe45-48d6-af97-5a97abaeac9e)and this. so cool.
 
